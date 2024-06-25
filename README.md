@@ -8,3 +8,4 @@ if you cant afford it then your not ready, cant get nothing price per function
 (kali linux is your friend too)
 
 (aliexpress is your friend)
+<I dont understand/>
